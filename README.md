@@ -1,1 +1,0 @@
-# efsungurbuz.github.io1
